@@ -1,1 +1,1 @@
-# domazlice..pirati.cz
+# domazlice.pirati.cz
